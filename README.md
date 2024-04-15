@@ -1,16 +1,20 @@
-### Hi there 👋
-
-<!--
-**welchsoup/welchsoup** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![image](https://gifcity.carrd.co/assets/images/gallery93/5bf5532c.gif?v=26dffab5)
+![image](https://1p2p3.carrd.co/assets/images/gallery06/9a77ff5d_original.gif?v=7eefcab1)
+![image](https://gifcity.carrd.co/assets/images/gallery14/995dfe7d.gif?v=26dffab5)
+![image](https://gifcity.carrd.co/assets/images/gallery14/11bd9f95.gif?v=26dffab5)
+![image](https://gifcity.carrd.co/assets/images/gallery93/84dc16fa.gif?v=26dffab5)
+![image](https://nustufff.carrd.co/assets/images/gallery05/22385aa0.gif?v=5bcf7cb9)
+![image](https://nustufff.carrd.co/assets/images/gallery10/e21cef2e.gif?v=5bcf7cb9)
+![image](https://nustufff.carrd.co/assets/images/gallery10/f4b32c67.gif?v=5bcf7cb9)
+![image](https://nustufff.carrd.co/assets/images/gallery01/1425617a.gif?v=5bcf7cb9)
+![image](https://ugleeblinkie.carrd.co/assets/images/image66.gif?v01485035087951)
+![image](https://collection.ju.mp/assets/images/gallery09/f068ebc3.png?v=0236594d)
+![image](https://koinuko.pink/mygraphics/blinkies/adultswim.gif)
+![image](https://nustufff.carrd.co/assets/images/gallery02/b429cd38.gif?v=5bcf7cb9)
+![image](https://nustufff.carrd.co/assets/images/gallery04/91213aaa.gif?v=5bcf7cb9)
+![image](https://nustufff.carrd.co/assets/images/gallery28/0050fd4d.gif?v=5bcf7cb9)
+![image](https://nustufff.carrd.co/assets/images/gallery21/d1300185.gif?v=5bcf7cb9)
+![image](https://nustufff.carrd.co/assets/images/gallery10/39e17e77.gif?v=5bcf7cb9)
+![image](https://nustufff.carrd.co/assets/images/gallery08/5868935f.gif?v=5bcf7cb9)
+![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/e095b792-1414-4bbf-b89c-a6b52e11f4e5/dadiz0l-c1d94836-79bd-4afc-9847-68d1e93d9e56.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2UwOTViNzkyLTE0MTQtNGJiZi1iODljLWE2YjUyZTExZjRlNVwvZGFkaXowbC1jMWQ5NDgzNi03OWJkLTRhZmMtOTg0Ny02OGQxZTkzZDllNTYucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.sgoyKnBvO-UoAgTyjQJjNs7EN5JfLbswC95QPblmagQ)
+![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/e095b792-1414-4bbf-b89c-a6b52e11f4e5/dadm78g-e6251442-e3c0-483c-b966-3051f8e6055e.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2UwOTViNzkyLTE0MTQtNGJiZi1iODljLWE2YjUyZTExZjRlNVwvZGFkbTc4Zy1lNjI1MTQ0Mi1lM2MwLTQ4M2MtYjk2Ni0zMDUxZjhlNjA1NWUucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.DHvpWIX4Ur6tROejOBag6NxbpvEU5PHlArCLHkYHbO0)
