@@ -7,7 +7,7 @@
 ![image](https://nustufff.carrd.co/assets/images/gallery10/f4b32c67.gif?v=5bcf7cb9)
 ![image](https://nustufff.carrd.co/assets/images/gallery01/1425617a.gif?v=5bcf7cb9)
 ![image](https://ugleeblinkie.carrd.co/assets/images/image66.gif?v01485035087951)
-![image](https://collection.ju.mp/assets/images/gallery09/f068ebc3.png?v=0236594d)
+![image](https://gifcity.carrd.co/assets/images/gallery14/a66d9c92.gif?v=52814815)
 ![image](https://koinuko.pink/mygraphics/blinkies/adultswim.gif)
 ![image](https://nustufff.carrd.co/assets/images/gallery02/b429cd38.gif?v=5bcf7cb9)
 ![image](https://nustufff.carrd.co/assets/images/gallery04/91213aaa.gif?v=5bcf7cb9)
