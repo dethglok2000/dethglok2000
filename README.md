@@ -2,7 +2,6 @@
 ![image](https://gifcity.carrd.co/assets/images/gallery14/7de1ed7b.gif?v=52814815)
 ![image](https://gifcity.carrd.co/assets/images/gallery14/cb145846.gif?v=52814815)
 ![](https://adriansblinkiecollection.neocities.org/a44.gif)
-![image](https://gifcity.carrd.co/assets/images/gallery14/94d8a931.gif?v=52814815)
 ![image](https://gifcity.carrd.co/assets/images/gallery93/5bf5532c.gif?v=26dffab5)
 ![image](https://1p2p3.carrd.co/assets/images/gallery06/9a77ff5d_original.gif?v=7eefcab1)
 ![image](https://gifcity.carrd.co/assets/images/gallery14/995dfe7d.gif?v=26dffab5)
