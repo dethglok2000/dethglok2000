@@ -1,3 +1,11 @@
+![](http://textfiles.com/underconstruction/AtAthensParthenon4567construction3.gif)
+<p align="center">
+<img src="https://horrorgifs.neocities.org/gifs/Skeleton/Skeleton%20(14).gif"/>
+<h3 align="center"> <img src="https://gifcity.carrd.co/assets/images/gallery01/d2a0c4a5.gif?v=9133a0c8">  <samp> THUNDER FIRE ALL YOUR GENERATION!!!! </samp><img src="https://gifcity.carrd.co/assets/images/gallery31/a3e8ff2d.gif?v=9133a0c8"> </h4>
+  <p align="center">
+<img src="https://gifcity.carrd.co/assets/images/gallery47/65cbe5d6.gif?v=9133a0c8"/>
+<h4 align="center"> <samp> nihao </samp>
+
 ![image](https://gifcity.carrd.co/assets/images/gallery14/fb1793ce.gif?v=52814815)
 ![image](https://gifcity.carrd.co/assets/images/gallery14/7de1ed7b.gif?v=52814815)
 ![image](https://gifcity.carrd.co/assets/images/gallery14/cb145846.gif?v=52814815)
@@ -33,6 +41,3 @@
 ![](https://adriansblinkiecollection.neocities.org/y46.gif)
 ![](https://adriansblinkiecollection.neocities.org/b41.gif)
 ![](https://adriansblinkiecollection.neocities.org/d34.gif)
-![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/e095b792-1414-4bbf-b89c-a6b52e11f4e5/dadiz0l-c1d94836-79bd-4afc-9847-68d1e93d9e56.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2UwOTViNzkyLTE0MTQtNGJiZi1iODljLWE2YjUyZTExZjRlNVwvZGFkaXowbC1jMWQ5NDgzNi03OWJkLTRhZmMtOTg0Ny02OGQxZTkzZDllNTYucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.sgoyKnBvO-UoAgTyjQJjNs7EN5JfLbswC95QPblmagQ)
-![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/e095b792-1414-4bbf-b89c-a6b52e11f4e5/dadm78g-e6251442-e3c0-483c-b966-3051f8e6055e.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2UwOTViNzkyLTE0MTQtNGJiZi1iODljLWE2YjUyZTExZjRlNVwvZGFkbTc4Zy1lNjI1MTQ0Mi1lM2MwLTQ4M2MtYjk2Ni0zMDUxZjhlNjA1NWUucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.DHvpWIX4Ur6tROejOBag6NxbpvEU5PHlArCLHkYHbO0)
-![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/e095b792-1414-4bbf-b89c-a6b52e11f4e5/dadm2f0-d82f28c6-693b-4d76-a5db-5e32f4a36d9a.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2UwOTViNzkyLTE0MTQtNGJiZi1iODljLWE2YjUyZTExZjRlNVwvZGFkbTJmMC1kODJmMjhjNi02OTNiLTRkNzYtYTVkYi01ZTMyZjRhMzZkOWEucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Wg_SBhfi0p4UFvEg_NFqW4miYx-gBnHBJfaCak1TQ6M)
