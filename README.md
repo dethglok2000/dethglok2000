@@ -1,11 +1,17 @@
-![](http://textfiles.com/underconstruction/AtAthensParthenon4567construction3.gif)
+ <p align="center">
+  <img src="https://gifcity.carrd.co/assets/images/gallery40/0a24ec5b.gif?v=9133a0c8">
+</p>
 <p align="center">
 <img src="https://horrorgifs.neocities.org/gifs/Skeleton/Skeleton%20(14).gif"/>
 <h3 align="center"> <img src="https://gifcity.carrd.co/assets/images/gallery01/d2a0c4a5.gif?v=9133a0c8">  <samp> THUNDER FIRE ALL YOUR GENERATION!!!! </samp><img src="https://gifcity.carrd.co/assets/images/gallery31/a3e8ff2d.gif?v=9133a0c8"> </h4>
   <p align="center">
 <img src="https://gifcity.carrd.co/assets/images/gallery47/65cbe5d6.gif?v=9133a0c8"/>
-<h4 align="center"> <samp> nihao </samp>
+<h5 align="center"> hallo my name toki!!! im always off tab so whisper if you wanna tell me something :p i have a rentry linked if you would like to know more about me and what i like ^_^ or you could look at my blinkies plsplspls look take a look pls ouugh... sign ata for a smoochies <img src="https://gifcity.carrd.co/assets/images/gallery01/db6535c8.png?v=9133a0c8">
+</p>
+  <p align="center">
+  <img src="https://gifcity.carrd.co/assets/images/gallery39/59e6c9a7.gif?v=9133a0c8">
 
+  
 ![image](https://gifcity.carrd.co/assets/images/gallery14/fb1793ce.gif?v=52814815)
 ![image](https://gifcity.carrd.co/assets/images/gallery14/7de1ed7b.gif?v=52814815)
 ![image](https://gifcity.carrd.co/assets/images/gallery14/cb145846.gif?v=52814815)
@@ -41,3 +47,25 @@
 ![](https://adriansblinkiecollection.neocities.org/y46.gif)
 ![](https://adriansblinkiecollection.neocities.org/b41.gif)
 ![](https://adriansblinkiecollection.neocities.org/d34.gif)
+![](https://gifcity.carrd.co/assets/images/gallery23/e639c77d.gif?v=9133a0c8)
+![](https://gifcity.carrd.co/assets/images/gallery14/d659f31b.gif?v=9133a0c8)
+![](https://adriansblinkiecollection.neocities.org/x25.gif)
+![](https://gifcity.carrd.co/assets/images/gallery24/a65e4188.gif?v=9133a0c8)
+![](https://pix.crd.co/assets/images/gallery09/c26b14f7_original.gif?v=95dd3781)
+![](https://gifcity.carrd.co/assets/images/gallery18/3c5008c4.gif?v=9133a0c8)
+![](https://gifcity.carrd.co/assets/images/gallery180/21c514ff.gif?v=9133a0c8)
+![](https://gifcity.carrd.co/assets/images/gallery165/7e4c5b66.gif?v=9133a0c8)
+![](https://gifcity.carrd.co/assets/images/gallery24/a9dace8a.gif?v=9133a0c8)
+![](https://i.postimg.cc/QCks1z8f/eviltrans.gif)
+![](https://i.postimg.cc/XNwnRrf9/slasher.gif)
+![](https://i.postimg.cc/4NsXsXPq/psych.gif)
+![](https://gifcity.carrd.co/assets/images/gallery15/3a7957e7.gif?v=9133a0c8)
+
+ </p>
+  <p align="center">
+  <img src="https://gifcity.carrd.co/assets/images/gallery40/0a24ec5b.gif?v=9133a0c8">
+</p>
+
+<p align="center">
+<img src="https://i.postimg.cc/nLKR1tbb/tumblr-static-d927i6fwp1s8k8o80osog8c4s.gif">
+  </p>
