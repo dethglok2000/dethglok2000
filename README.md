@@ -6,7 +6,7 @@
 <h3 align="center"> <img src="https://gifcity.carrd.co/assets/images/gallery01/d2a0c4a5.gif?v=9133a0c8">  <samp> THUNDER FIRE ALL YOUR GENERATION!!!! </samp><img src="https://gifcity.carrd.co/assets/images/gallery31/a3e8ff2d.gif?v=9133a0c8"> </h4>
   <p align="center">
 <img src="https://gifcity.carrd.co/assets/images/gallery47/65cbe5d6.gif?v=9133a0c8"/>
-<h5 align="center"> hallo my name toki!!! or joel, im always off tab so whisper if you wanna tell me something :p i have a rentry linked if you would like to know more about me and what i like ^_^ or you could look at my blinkies plsplspls look take a look pls ouugh... sign ata for a smoochies <img src="https://gifcity.carrd.co/assets/images/gallery01/db6535c8.png?v=9133a0c8">
+<h5 align="center"> hallo my name toki!!! or joel, im always off tab so whisper if you wanna tell me something :p i have a rentry linked if you would like to know more about me and what i like ^_^ or you could look at my blinkies plsplspls look take a look pls ouugh... sign ata for a smoochies <img src="https://gifcity.carrd.co/assets/images/gallery01/db6535c8.png?v=9133a0c8"> um -13 do NOT interact pls 
 </p>
   <p align="center">
   <img src="https://gifcity.carrd.co/assets/images/gallery39/59e6c9a7.gif?v=9133a0c8">
