@@ -18,9 +18,9 @@
 <h5 align="center"> hallo my name toki!!! or joel :p i have a rentry linked if you would like to know more about me and what i like ^_^ or you could look at my blinkies plsplspls look take a look pls ouugh... sign ata for a smoochies <img src="https://gifcity.carrd.co/assets/images/gallery01/db6535c8.png?v=9133a0c8"> um -15 do NOT interact pls 
 </p>
   <p align="center">
-   <img src="https://gifcity.carrd.co/assets/images/gallery04/480bc2ed.gif?v=e3c0bc0f"/> <a href="https://vivement.fr/">test</a>
-<a href="https://vivement.fr/">test</a>
-<a href="https://vivement.fr/">test</a>
+   <img src="https://gifcity.carrd.co/assets/images/gallery04/048eb1cd.gif?v=e3c0bc0f"/> <a href="https://vivement.fr/">test</a>
+<img src="(https://gifcity.carrd.co/assets/images/gallery02/db379452.gif?v=e3c0bc0f)"/> <a href="https://vivement.fr/">test</a>
+<img src="https://gifcity.carrd.co/assets/images/gallery02/9e44ed28.gif?v=e3c0bc0f"/> <a href="https://vivement.fr/">test</a>
 
   
 ![image](https://gifcity.carrd.co/assets/images/gallery14/fb1793ce.gif?v=52814815)
