@@ -1,6 +1,6 @@
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rm9u415c3794wmoj70i0k6xfl&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-
+<div align="center" dir="auto"
+ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rm9u415c3794wmoj70i0k6xfl&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ff0000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+</div>
  <p align="center">
   <img src="https://gifcity.carrd.co/assets/images/gallery40/0a24ec5b.gif?v=9133a0c8">
 </p>
