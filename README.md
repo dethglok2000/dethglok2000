@@ -70,6 +70,7 @@
 ![](https://i.postimg.cc/XNwnRrf9/slasher.gif)
 ![](https://i.postimg.cc/4NsXsXPq/psych.gif)
 ![](https://gifcity.carrd.co/assets/images/gallery15/3a7957e7.gif?v=9133a0c8)
+</p>
 
  </p>
   <p align="center">
