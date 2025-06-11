@@ -18,9 +18,9 @@
 <h5 align="center"> hallo my name toki!!! or joel :p i have a rentry linked if you would like to know more about me and what i like ^_^ or you could look at my blinkies plsplspls look take a look pls ouugh... sign ata for a smoochies <img src="https://gifcity.carrd.co/assets/images/gallery01/db6535c8.png?v=9133a0c8"> um -15 do NOT interact pls 
 </p>
   <p align="center">
-   <img src="https://gifcity.carrd.co/assets/images/gallery03/32e9614e.gif?v=e3c0bc0f"/> <a href="https://vivement.fr/">CODY</a> 𓂃
-<img src="https://gifcity.carrd.co/assets/images/gallery04/a7b9da43.gif?v=e3c0bc0f"/> <a href="https://vivement.fr/">RUSS</a> 𓂃
-<img src="https://gifcity.carrd.co/assets/images/gallery02/67a77f76.gif?v=e3c0bc0f"/> <a href="https://vivement.fr/">CHRIS</a> 
+   <img src="https://gifcity.carrd.co/assets/images/gallery03/32e9614e.gif?v=e3c0bc0f"/> <a href="https://github.com/neurozoned">CODY</a> 𓂃
+<img src="https://gifcity.carrd.co/assets/images/gallery04/a7b9da43.gif?v=e3c0bc0f"/> <a href="https://github.com/NightVisionGoggles">RUSS</a> 𓂃
+<img src="https://gifcity.carrd.co/assets/images/gallery02/67a77f76.gif?v=e3c0bc0f"/> <a href="https://github.com/dogsoldiers">CHRIS</a> 
 
   
 ![image](https://gifcity.carrd.co/assets/images/gallery14/fb1793ce.gif?v=52814815)
