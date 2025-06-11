@@ -12,7 +12,6 @@
 </p>
 <p align="center">
 <img src="https://horrorgifs.neocities.org/gifs/Skeleton/Skeleton%20(14).gif"/>
- heloo testetstets
 <h3 align="center"> <img src="https://gifcity.carrd.co/assets/images/gallery01/d2a0c4a5.gif?v=9133a0c8">  <samp> THUNDER FIRE ALL YOUR GENERATION!!!! </samp><img src="https://gifcity.carrd.co/assets/images/gallery31/a3e8ff2d.gif?v=9133a0c8"> </h4>
   <p align="center">
 <img src="https://gifcity.carrd.co/assets/images/gallery47/65cbe5d6.gif?v=9133a0c8"/>
