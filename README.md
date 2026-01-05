@@ -17,7 +17,7 @@
 <img src="https://gifcity.carrd.co/assets/images/gallery47/65cbe5d6.gif?v=9133a0c8"/>
 </p>
 
-
+<div align="justify"> i ❤️ my friends!!! </div>
   <p align="center">
    <img src="https://gifcity.carrd.co/assets/images/gallery03/32e9614e.gif?v=e3c0bc0f"/> <a href="https://github.com/neurozoned">CODY</a> 𓂃
 <img src="https://gifcity.carrd.co/assets/images/gallery04/a7b9da43.gif?v=e3c0bc0f"/> <a href="https://github.com/NightVisionGoggles">RUSS</a> 𓂃
